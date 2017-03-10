@@ -18,6 +18,9 @@ http://droidfactory.mforos.com/ (Aquí encontrarán buen material de Star Wars)
 Comics Team-up
 **
 
+El Comic Amarillento
+https://www.facebook.com/groups/374429079587404/?fref=ts
+
 The Last Page Comics
 https://www.facebook.com/thelastpagecomics/?fref=ts
 

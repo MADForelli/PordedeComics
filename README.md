@@ -5,11 +5,23 @@
 (En la mayoría de foros necesitarán una cuenta, pero no lleva más de dos o tres minutos hacerlas y/o pueden acceder con FB)
 
 http://laleyendadesw.mforos.com/
+
 http://lamansion-crg.net/ (Para esta necesitarán eMule, pero es muy buena)
+
 http://howtoarsenio.blogspot.com/
+
 http://archivo-de-comics.blogspot.co.uk/
+
 http://prix-comics.com/
+
 http://droidfactory.mforos.com/ (Aquí encontrarán buen material de Star Wars)
+
+http://comicuniverse24.blogspot.co.uk/
+
+http://avengershickman.blogspot.co.uk/ (Solo tiene la etapa Hickman en Vengadores y la página es un poco engorrosa para navegar en ella, pero está todo o casi todo)
+
+http://comixclic.blogspot.co.uk/
+
 
 # Páginas y grupos de FB en Español
 

@@ -61,12 +61,17 @@ https://www.facebook.com/VKnights01/?fref=ts
 # Páginas en inglés
 
 http://getcomics.info/
+
 http://empire-dcp-minutemen-scan.blogspot.co.uk/
+
 http://www.comicscodes.com/
+
 http://newcomic.info/
+
 http://comicsall.net/
 
 # Leer comics online
 
 http://vercomics.com/
+
 http://readcomiconline.to/ (En inglés)
